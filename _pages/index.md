@@ -8,6 +8,7 @@ permalink: /
 織田信長、源義経、真田幸村など多く出るだろう。  
 その中でも私は**片倉小十郎景綱**をぜひ推したい！！  
 彼の凄さをできるだけコンパクトにまとめるので、ぜひ興味を持ってくれると嬉しい  
+（ちなみに私は「戦国BASARA」からハマった人だ。）![image](https://pbs.twimg.com/media/FS96aXGVsAAKdgI?format=jpg&name=4096x4096)
 
 # 片倉小十郎景綱とは
 ![image](https://www.touken-world.jp/wp/wp-content/uploads/2020/04/cea8d304b8f276169e31c903de038cd8.jpg)
