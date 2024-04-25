@@ -1,7 +1,7 @@
 ---
 title: "「竜の右目」という推し"
 author: default
-permalink: mikan/mikan
+permalink: /
 ---
 # 書いた理由
 「歴史上の人物で一番好きな人は？」と聞かれたら皆さんなら何と答えるだろうか？  
